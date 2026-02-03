@@ -1,2 +1,0 @@
-# Spot.github.io
-Welcome 😁
